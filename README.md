@@ -11,10 +11,22 @@ gopualakrishna-2@okhdfcbank       /
 gopualakrishna-1@okaxis           /
 gopualakrishna-2@oksbi
 
+Paypal account details to transfer fund:
+@gopualakrishna                /          
+gopualakrishna@gmail.com         paypal registered  email                    /             
+9900505351                       paypal registered mobile number       
+
+.
 
 I am a Global Peace Maker, Global Citizen, so Could you please send fund generously to my Bit Coin address given below
 
 Send Fund to my BitCoin Address: 1AiRoneVpLjM92BDf4puKXYgX1TcdvqYxi
+
+
+UPI Money transfer through Paytm address to send fund
+9900505351@paytm
+
+
 
 <!---
 gopualakrishna6/gopualakrishna6 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
