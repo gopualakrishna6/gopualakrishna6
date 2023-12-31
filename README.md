@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gopualakrishna6    My Name is Gopu Alakrishna Nagarajan
 - 👀 I’m interested in ...Helping People affected by Natuaral Disasters, Wars in all Countries
-- 🌱 I’m currently learning ...How to help Humans in this world? How to create a safe and peaceful world without Wars? 
+- 🌱 I’m currently working on ...Helping Humans affected by Natural Disasters and wars quickly in this world.   Creating a safe and peaceful world without Wars. 
 - 💞️ I’m looking to collaborate on ...Fund raising Helping People affected by Natuaral Disasters, Wars in all Countries
 - 📫 How to reach me ... gopualakrishna6@yahoo.com      Email ID
 - +91-99005055351   Whatsapp and Mobile Number                 
