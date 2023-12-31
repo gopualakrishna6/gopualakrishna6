@@ -12,8 +12,8 @@ gopualakrishna-1@okaxis           /
 gopualakrishna-2@oksbi
 
 Paypal account details to transfer fund:
-@gopualakrishna                /          
-gopualakrishna@gmail.com         paypal registered  email                    /             
+@gopualakrishna                                            
+gopualakrishna@gmail.com         paypal registered  email                                 
 9900505351                       paypal registered mobile number       
 
 .
